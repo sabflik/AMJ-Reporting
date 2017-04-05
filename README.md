@@ -1,0 +1,1 @@
+This app is created for the Ahmadiyya Muslim Jamaat New Zealand
